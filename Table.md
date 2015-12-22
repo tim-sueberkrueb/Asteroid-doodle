@@ -73,4 +73,15 @@
 | ![thumpnail](https://farm9.staticflickr.com/8405/8687826768_11eda8d247_q_d.jpg) | Norio NAKAYAMA | Power Shot N 作例 | [flickr](https://flic.kr/p/eeHodG) |  |  |  |
 | ![thumpnail](https://farm7.staticflickr.com/6027/5963581908_5dbb80383c_q_d.jpg) | Joan Sorolla | Teules | [flickr](https://flic.kr/p/a5YV8J) |  |  |  |
 | ![thumpnail](https://farm6.staticflickr.com/5278/5877995338_012bcff6b7_q_d.jpg) | Don Graham | Bryce Canyon National Park | [flickr](https://flic.kr/p/9Xqged) |  |  |  |
+| ![thumpnail](https://farm9.staticflickr.com/8263/8677680402_e622a8ae6e_q_d.jpg) | Brett Jordan | Posts Palette | [flickr](https://flic.kr/p/edPo4m) |  |  |  |
+| ![thumpnail](https://farm6.staticflickr.com/5342/9296537027_003fbe263a_q_d.jpg) | Brett Jordan | Pinky Sunset | [flickr](https://flic.kr/p/favbza) |  |  |  |
+| ![thumpnail](https://farm3.staticflickr.com/2853/10435313403_8678eec47f_q_d.jpg) | Brett Jordan | Frosted Leaf | [flickr](https://flic.kr/p/gU8H7B) |  |  |  |
+| ![thumpnail](https://farm9.staticflickr.com/8408/8697161879_158c78401c_q_d.jpg) | Brett Jordan | Chinese Wall | [flickr](https://flic.kr/p/efxedT) |  |  |  |
+| ![thumpnail](https://farm5.staticflickr.com/4048/4182510691_9bbb305e85_q_d.jpg) | Patrick Hoesly | 378 - Red Puzzle Texture | [flickr](https://flic.kr/p/7nAsHi) |  |  |  |
+| ![thumpnail](https://farm8.staticflickr.com/7270/7595873090_6dee49654c_q_d.jpg) | Brett Jordan | Saturated Sands | [flickr](https://flic.kr/p/czdQr9) |  |  |  |
+| ![thumpnail](https://farm9.staticflickr.com/8101/8451874091_ec6b803d4d_q_d.jpg) | Brett Jordan | Cross-processed Sky | [flickr](https://flic.kr/p/dSS4H6) |  |  |  |
+| ![thumpnail](https://farm1.staticflickr.com/24/55326137_4e3fe3137c_q_d.jpg) | Josef Stuefer | Aelse #8 | [flickr](https://flic.kr/p/5TywV) |  |  |  |
+
+
+
 | ![thumpnail]() | x | X | [flickr]() | ✔ | ✔ |  |
